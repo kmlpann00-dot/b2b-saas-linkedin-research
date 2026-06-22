@@ -58,3 +58,8 @@ Key Takeaways:
 Summary
 
 Katelyn Bourgoin specializes in customer research and buyer psychology, helping marketers create content that resonates with their target audience.
+
+Sources Reviewed
+
+Katelyn Bourgoin
+LinkedIn: https://www.linkedin.com/in/katebour/
