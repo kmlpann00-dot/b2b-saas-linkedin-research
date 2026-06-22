@@ -52,3 +52,9 @@ Key Takeaways:
 Summary
 
 Ross Simmonds focuses on content distribution strategies and maximizing the impact of marketing content through systematic promotion.
+
+Sources Reviewed
+
+Ross Simmonds
+LinkedIn: https://www.linkedin.com/in/rosssimmonds/
+YouTube: https://www.youtube.com/@RossSimmonds
