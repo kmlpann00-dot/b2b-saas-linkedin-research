@@ -58,3 +58,8 @@ Key Takeaways:
 Summary
 
 Dave Gerhardt is known for combining brand marketing, content creation, and community building to support B2B growth.
+
+Sources Reviewed
+
+Dave Gerhardt
+LinkedIn: https://www.linkedin.com/in/davegerhardt/
