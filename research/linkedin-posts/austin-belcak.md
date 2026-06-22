@@ -58,3 +58,8 @@ Key Takeaways:
 Summary
 
 Austin Belcak focuses on LinkedIn growth and personal branding strategies that help professionals build audiences and authority.
+
+Sources Reviewed
+
+Austin Belcak
+LinkedIn: https://www.linkedin.com/in/austinbelcak/
