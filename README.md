@@ -18,3 +18,23 @@ research/
 ├── linkedin-posts/
 ├── youtube-transcripts/
 └── other/
+
+
+Experts Researched
+
+* Justin Welsh
+* Lara Acosta
+* Richard van der Blom
+* Daniel Murray
+* Ross Simmonds
+* Jasmin Alic
+* Katelyn Bourgoin
+* Chris Walker
+* Dave Gerhardt
+* Austin Belcak
+
+Research Outputs
+
+* 10 expert research profiles
+* 3 YouTube transcript summaries
+* Source database with LinkedIn and YouTube references
