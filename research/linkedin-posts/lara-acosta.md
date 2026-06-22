@@ -52,3 +52,8 @@ Key Takeaways:
 Summary
 
 Lara Acosta focuses on personal branding, audience growth, and practical LinkedIn content frameworks that help professionals build authority and engagement.
+
+Sources Reviewed
+
+LinkedIn: https://www.linkedin.com/in/laraacosta/
+YouTube: https://www.youtube.com/@LaraAcosta
