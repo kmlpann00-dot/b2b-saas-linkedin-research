@@ -58,3 +58,8 @@ Key Takeaways:
 Summary
 
 Chris Walker focuses on demand generation and helping B2B companies create marketing programs tied to revenue outcomes.
+
+Sources Reviewed
+
+Chris Walker
+LinkedIn: https://www.linkedin.com/in/chriswalker171/
