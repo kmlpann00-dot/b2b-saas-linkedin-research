@@ -57,3 +57,8 @@ Key Takeaways:
 Summary
 
 Jasmin Alic focuses on helping professionals grow their audience through personal branding and strategic content creation.
+
+Sources Reviewed
+
+Jasmin Alic
+LinkedIn: https://www.linkedin.com/in/jasmin-alic/
