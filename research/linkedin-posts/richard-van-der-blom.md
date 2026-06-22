@@ -52,3 +52,8 @@ Key Takeaways:
 Summary
 
 Richard van der Blom specializes in LinkedIn algorithm research and provides data-driven insights into content performance and social selling.
+
+Sources Reviewed
+
+Richard van der Blom
+LinkedIn: https://www.linkedin.com/in/richardvanderblom/
