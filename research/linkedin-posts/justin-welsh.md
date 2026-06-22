@@ -55,9 +55,5 @@ Justin Welsh emphasizes consistency, authority building, and scalable content sy
 
 Sources Reviewed
 
-1. LinkedIn Profile
-    https://www.linkedin.com/in/justinwelsh/
-2. LinkedIn Activity
-    https://www.linkedin.com/in/justinwelsh/recent-activity/
-3. YouTube Channel
-    https://www.youtube.com/@JustinWelsh
+LinkedIn: https://www.linkedin.com/in/justinwelsh/
+YouTube: https://www.youtube.com/@JustinWelsh
